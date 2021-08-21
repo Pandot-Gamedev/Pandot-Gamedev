@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Pandot-Gamedev
+- :video_game: I’m interested in making games
+- :telephone_receiver: I’m looking to collaborate on gamedevs with good art skill
+- 📫 Reach me on https://discord.gg/9hYhZeWN
